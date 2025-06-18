@@ -1,6 +1,6 @@
 # Summary of DJMax Respect V - V Liberty 3 Incident for English speakers 101
 
-Greetings, this is Sir Lucian. Guest Pattern Designer of DJMax Respect V. I'm writing this on my own GitHub page just because Google Docs or posting on any other SNS directly are more prone to outrage attacks, so please bare with me
+Greetings, this is Sir Lucian. Guest Pattern Designer of DJMax Respect V. I'm writing this on my own GitHub page just because Google Docs or posting on any other SNS directly are more prone to outrage attacks, so please bear with me
 
 ### Disclaimer
 **I'm not writing this on Neowiz, Rocky Studio, or any official groups behalf.** I'm only doing this so that the global side could finally have a better grasp of what had happened from the very beginning, by 3rd party's perspective.
@@ -88,7 +88,7 @@ This may raise a theory that maybe Neowiz was trying to use CLTH's connection wi
 
 However, it became a total disaster when the fandom level had a unanimous consensus that Waktaverse fandom (Leafies in particular) were not to be messing with.
 
-*Will this incident affect global side?* I'd say **barely matters**. The only thing we will be missing out are great licensed songs that could've been added to please global fans like Monstercat or Attack the Music. But we will see what will happen down the road. Only time will tell.
+*Will this incident affect global side?* I'd say **barely matters**. The only thing we will be missing out are great licensed songs that could've been added to please global fans such as the label Monstercat or Attack the Music. But we will see what will happen down the road. Only time will tell.
 
 One more thing to note that, the direction of DJMax storyline might or might not change depends on how far did they go with the concept they've planned so far. We'll see that in the future.
 
