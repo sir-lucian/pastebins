@@ -55,11 +55,11 @@ After a long day, on 13 June 2025, DJMax Respect V finally came back from silenc
 
 Soon after, there were many apology statements by different parties. We'll go through some of the most important one-by-one.
 
-First, Woowakgood's [apology](https://cafe.naver.com/steamindiegame/20339352)
+First, Woowakgood's [apology](https://cafe.naver.com/steamindiegame/20339352) [(Archived Ver.)](https://web.archive.org/web/20250613124052/https://cafe.naver.com/steamindiegame/20339352)
 
 One thing to mention is that, he posted this statement on his own fan blog. It's publicly seen with no subscription payment required, but it's his fan blog which made it look like he's only apologising to his fans. Also the apology is shockingly short and covers no details at all, so that just added the spice that he might not have the remorse at all.
 
-Second, CLTH, the composer of "Kidding", and this is [his statement](https://www.youtube.com/channel/UCUYJ2ZTHq1GKOoam-r_SL1w/community?lb=UgkxTGiDb__I6gAfN8tsLyb37JMNCRjhg4hg).
+Second, CLTH, the composer of "Kidding", and this is [his statement](https://www.youtube.com/channel/UCUYJ2ZTHq1GKOoam-r_SL1w/community?lb=UgkxTGiDb__I6gAfN8tsLyb37JMNCRjhg4hg). [(Archived Ver.)](http://archive.today/2025.06.13-103145/https://www.youtube.com/channel/UCUYJ2ZTHq1GKOoam-r_SL1w/community?lb=UgkxTGiDb__I6gAfN8tsLyb37JMNCRjhg4hg)
 
 The most important part said that "Kidding" was included in the DLC not on his own will, meaning Neowiz took his song, made a DJMax edit/remix, and slapped on the DLC without him knowing it's happening. Whether if this is true or not, Neowiz is already responsible for either choosing songs without stakeholders' consent, or having no background checking of the song's controversies by internal PR team.
 
