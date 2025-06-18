@@ -90,7 +90,7 @@ However, it became a total disaster when the fandom level had a unanimous consen
 
 *Will this incident affect global side?* I'd say **barely matters**. The only thing we will be missing out are great licensed songs that could've been added to please global fans like Monstercat or Attack the Music. But we will see what will happen down the road. Only time will tell.
 
-One more thing to note that, the direction od DJMax storyline might or might not change depends on how far did they go with the concept they've planned so far. We'll see that in the future.
+One more thing to note that, the direction of DJMax storyline might or might not change depends on how far did they go with the concept they've planned so far. We'll see that in the future.
 
 ~~BUT HEY THAT'S JUST A THEORY. A GAME THEORY!~~
 
