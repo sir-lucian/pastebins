@@ -1,4 +1,4 @@
-# Summary of DJMax Respect V V Liberty 3 Incident for English speakers 101
+# Summary of DJMax Respect V - V Liberty 3 Incident for English speakers 101
 
 Greetings, this is Sir Lucian. Guest Pattern Designer of DJMax Respect V. I'm writing this on my own GitHub page just because Google Docs or posting on any other SNS directly are more prone to outrage attacks, so please bare with me
 
@@ -29,7 +29,7 @@ At this point you can already assume that idol fan base can be obnoxious, and th
 
 Now, some of the more notorious Leafies were known to cause ruckus on other communities by generally being an obnoxious fan like spamming on various online forums, criticising other Vtubers that their idols are better than them, picking pointless fights on other communities such as custom keyboards groups, Blue Archive, Vocaloid, Monster Hunter, and even South Korean politics.
 
-But wait, there's more. There are cases that some Leafies were engaged in active cyberbullying content creators, a cosplayer, other Vtubers even withing Waktaverse itself, and probably more to list that you could imagine. The most tragic is the cyberbullying of Airi Kanna which included doxxing her family member, terrorising her streams, and eventually cyberbully her into her graduation.
+But wait, there's more. There are cases that some Leafies were engaged in active cyberbullying content creators, a cosplayer, other Vtubers even withing Waktaverse itself, and probably more to list that you could imagine. The most tragic is the cyberbullying of Airi Kanna which included doxxing her family member, terrorising her streams, and eventually cyberbully her into her graduation indirectly (citation needed).
 
 As for Woowakgood, he's known to be the archnemesis of DJMax starting the moment when he left a Steam curator review on DJMax back in the days slandering DJMax that the songs are old and boring, when the direction of the game was to respect old players; Hence the name DJMax Respect V.
 
