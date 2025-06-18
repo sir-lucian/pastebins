@@ -13,11 +13,11 @@ With that said, hold your thoughts for a bit, and let us begin.
 
 Before going into the current situation that is happening. We should introduce some entities that will get involved first, so that we are in the same page since I expect that some of you might not know any of these.
 
-First, the good ol' DJMax, the big guy. DJMax is a rhythm game series that has survived for years with multiple teams in charge over a long history. Nowadays, we have DJMax Respect V, a live service game on Steam and Xbox Game Pass developed by Rocky Studio Team led by BEXTER, under Neowiz, a game company based in South Korea.
+First, the good old DJMax, the big guy. DJMax is a rhythm game series that has survived for years with multiple teams in charge over a long history. Nowadays, we have DJMax Respect V, a live service game on Steam and Xbox Game Pass developed by Rocky Studio Team led by BEXTER, under Neowiz, a game company based in South Korea.
 
-Next one, we have to start with some context first. Let me introduce you to "Waktaverse", a Vtuber group from South Korea. This group is led by an og content creator/streamer of South Korea "Woowakgood", which is one of the main entities we will discuss soon. Now, as you can see, Waktaverse group is huge, and not everyone is relevant in this story. So for the sake of simplicity, we are going to focus on its specific unit called "Isegye Idol" or "Isedol", an idol unit created to have the main specialty being girl group music and streaming content.
+Next one, we have to start with some context first. Let me introduce you to "Waktaverse", a Vtuber group from South Korea. This group is led by an original content creator/streamer of South Korea "Woowakgood", which is one of the main entities we will discuss soon. Now, as you can see, Waktaverse group is huge, and not everyone is relevant in this story. So for the sake of simplicity, we are going to focus on its specific unit called "Isegye Idol" or "Isedol", an idol unit created to have the main specialty being girl group music and streaming content.
 
-This group also posess a DJMax fan game call WJMax (WakJMax). A fan game that was given a permission by Neowiz to operate as a non-commercial game featuring the songs from Waktaverse itself with its own team managing and content curating.
+This group also posess a DJMax fan game called WJMax (WakJMax). A fan game that was given a permission by Neowiz to operate as a non-commercial game featuring the songs from Waktaverse itself with its own team managing and content curating.
 
 Now at this point, you've already know all the official parties. Let me introduce "Ipari", a fandom name of Isedol fan group, or for the sake of western pronunciation I'm just going to call it "Leafies." (Ipari is leaf in Korean) 
 
