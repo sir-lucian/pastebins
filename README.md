@@ -37,7 +37,7 @@ Needless to say, the public image of this fandom in particular is not very good 
 
 ## Part 3: WJMax
 
-Back in October 2022, Woowakgood held a fan game contest centered around Waktaverse. WJMax was created by a different team for this, initially. At the time, it hasn't been approved and endorsed by Neowiz yet. When the WJMax continued to be developed post contest later, it finally got the approval from Neowiz that "It can be operated with a condition that it will remain non-commercial". Thus the Neowiz credit was inserted.
+Back in October 2022, Woowakgood held a fan game contest centered around Waktaverse. WJMax was created by a different team for this, initially. At the time, it hasn't been approved and endorsed by Neowiz yet. When WJMax continued to be developed post contest later, it finally got the approval from Neowiz that "It can be operated with a condition that it will remain non-commercial". Thus the Neowiz credit was inserted.
 
 The most recognisable characteristic of WJMax that was **significantly different than DJMax at the time** was the story mode. (we'll come back to this later) It included the lore and story of Waktaverse members. Specifically Isedol members and their journey.
 
@@ -86,7 +86,7 @@ Some speculations point at a Waktaverse Vtuber due to having the same vocal rang
 
 This may raise a theory that maybe Neowiz was trying to use CLTH's connection with Waktaverse to "merge" the universe together with DJMax side to be fully integrated later. The main evidence is that V Liverty 2 DLC added story mode of its own, similar to WJMax. The storyline that is focusing on idols and entertainment. The multiverse theme. If this were to be successful, DJMax would absorb the Waktaverse fandom into its own and we would've seen many more VTuber songs in the future because VTuber industry makes a lot of money (supposedly).
 
-However, if became a total disaster when the fandom level had a unanimous consensus that Waktaverse fandom (Leafies in particular) were not to be messing with.
+However, it became a total disaster when the fandom level had a unanimous consensus that Waktaverse fandom (Leafies in particular) were not to be messing with.
 
 *Will this incident affect global side?* I'd say **barely matters**. The only thing we will be missing out are great licensed songs that could've been added to please global fans like Monstercat or Attack the Music. But we will see what will happen down the road. Only time will tell.
 
